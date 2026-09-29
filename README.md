@@ -1,2 +1,2 @@
-# HarneeshSingh.github.io
+# Harneesh Singh
 Personal Website for Harneesh Singh
